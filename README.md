@@ -1,4 +1,4 @@
-# Parasite SEO Article 1 â€” Keyword: ajwain water benefits after delivery digestion gas
+# Parasite SEO Article 1 "” Keyword: ajwain water benefits after delivery digestion gas
 
 ## H1
 Ajwain Water After Delivery: Benefits for Digestion, Gas, and Recovery
@@ -43,7 +43,7 @@ A 2003 study published in Nutrition and Health analyzed traditional Indian lacta
 Some families add fennel seeds, cumin seeds, or a small piece of jaggery.
 
 ### How Much to Drink
-One to two cups a day is a common amount. More is not better â€” large amounts of strong ajwain water can cause heartburn.
+One to two cups a day is a common amount. More is not better "” large amounts of strong ajwain water can cause heartburn.
 
 ### Safety While Breastfeeding
 Ajwain is widely used in Indian cooking and the amount in ajwain water is small. It is generally considered safe in normal food amounts. If your baby seems unsettled after you drink it, stop and see whether it makes a difference.
@@ -52,7 +52,7 @@ Ajwain is widely used in Indian cooking and the amount in ajwain water is small.
 Severe or worsening tummy pain, inability to pass gas or stool, fever, or pain around a c-section wound need medical attention. Ajwain water is for everyday discomfort, not for these symptoms.
 
 ### Related Reading
-For a detailed, evidence-backed guide on ajwain water after delivery â€” including safety during breastfeeding, c-section considerations, and what it won't do â€” see [Poshita's ajwain water guide](https://poshita.org/postpartum/ajwain-water-after-delivery/).
+For a detailed, evidence-backed guide on ajwain water after delivery "” including safety during breastfeeding, c-section considerations, and what it won't do "” see [Poshita's ajwain water guide](https://poshita.org/postpartum/ajwain-water-after-delivery/).
 
 ---
 *Medically reviewed by a qualified health professional. This article is for informational purposes and is not a substitute for medical advice.*
